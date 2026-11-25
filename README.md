@@ -1,1 +1,1 @@
-# resurgo-clothing.
+# resurgo-clothing
